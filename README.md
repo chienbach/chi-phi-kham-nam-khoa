@@ -1,6 +1,9 @@
 <p dir="ltr">chi phí khám nam khoa hết bao tiền tại các bệnh viện tư?</p>
 
-<p><strong>chi phi kham nam khoa hết bao nhiêu tiền</strong> tại các phòng khám tư là thắc mắc quan tâm của không ít nam giới. Bởi lẽ, khi mà tỉ lệ bệnh vô sinh hiếm muộn ở phái mạnh ngày càng tăng cao vì thế nhiều nam giới cũng ngày càng có ý thức hơn trong việc giữ an toàn sức khỏe sinh sản.</p>
+<p><strong>chi phi kham nam khoa hết bao nhiêu tiền</strong> tại <a href="http://phongkhamthaiha.net">phòng khám đa khoa 11 thái hà</a> là thắc mắc quan tâm của không ít nam giới. Bởi lẽ, khi mà tỉ lệ bệnh vô sinh hiếm muộn ở phái mạnh ngày càng tăng cao vì thế nhiều nam giới cũng ngày càng có ý thức hơn trong việc giữ an toàn sức khỏe sinh sản.</p>
+<P><a href="http://phongkhamthaiha.net/tu-van-nam-khoa-truc-tuyen-10219.html">tư vấn nam khoa trực tuyến</a> có dịch vụ chăm sóc viêm tinh hoàn khi nam giới muốn giải đáp</p>
+
+<p><a href="http://phongkhamthaiha.net">phòng khám đa khoa 11 thái hà</a></p>
 
 <p><img alt="" src="http://benhxahoi.xyz/media/images/chi-phi-kham-nam-khoa-het-bao-nhieu-tien.jpg" style="height:250px; width:400px" /></p>
 
